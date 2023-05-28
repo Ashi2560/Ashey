@@ -1,2 +1,0 @@
-# Ashey
-I love it
